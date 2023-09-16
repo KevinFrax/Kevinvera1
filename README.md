@@ -4,7 +4,9 @@
 
 You can find me on 
 Telegram: @Plagio3000
+
 Gmail: kevin.vm1511@gmail.com
+
 whatsapp: +52 9381576367
 
 They are accounts for work where you can communicate with me.
